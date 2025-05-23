@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rishit12das@gmail.com**
 
-- ⚡ Fun fact **I am a Sports Guy, and Competitive in Nature :)**
+- ⚡ Fun fact **I am a Sports Guy with a lot of interest in Movies and TV series**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
